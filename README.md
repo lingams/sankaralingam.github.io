@@ -1,1 +1,0 @@
-# sankaralingam.github.io
